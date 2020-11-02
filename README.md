@@ -1,1 +1,1 @@
-je participe au projet : Maxime Nef
+je participe au projet : Maxime Nef !
